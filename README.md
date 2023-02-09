@@ -1,7 +1,7 @@
 ### SALUDOS  👽👋
 
 
-**Bienvenidos a mi perfil** soy ✨ _special_ ✨ 
+**Bienvenidos a mi perfil** soy ✨ _Oscar García_ ✨ 
 
 Here are some ideas to get you started:
 
